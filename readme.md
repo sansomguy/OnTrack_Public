@@ -1,0 +1,3 @@
+# Public submission items
+Sometimes I have to share public links for some of my university assignments...
+This is where I do that.
